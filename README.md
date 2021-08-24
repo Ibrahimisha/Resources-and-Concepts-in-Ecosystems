@@ -21,8 +21,7 @@ moral considerations of putting a price on things
 
 Global	Issues,	Local	Practices.	(link	to	e-Book)
 Basic concepts and expressions and their definition
-https://d3c33hcgiwev3.cloudfront.net/_f37d91ebd8073fb838c0e34b0df13cc7_Glossary_mooc_es.pdf?Expires=1629936000&Signature=ZwA1aYlAAasJ2ZF51aOx1xuji7~Cnoz0kXBhiz9ygNuXG3dTrz3an~~gsuQ5LyhMc--93mmjBX2lYX7gyRWugcHnJNguUg1MYNsa~JXXHROkTCLBDLLQLU2Ywlqd6EMWj3vEw6tLdOVXeHMuDGQ9kei9moQfivdYeXXta5En47A_&Key-Pair-Id=APKAJLTNE6QMUY6HBC5A
-
+https://2u.pw/w5ULm
 REPORTS
 - Assessment, U. N. E. (2011). The UK National Ecosystem 
 Assessment: Synthesis of the Key Findings. UNEP-WCMC, 
